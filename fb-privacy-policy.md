@@ -31,6 +31,6 @@ Our site and the services available through Run Hui are not intended for childre
 CHANGES TO THIS PRIVACY STATEMENT.
 Run Hui may amend this Privacy Statement from time to time. Use of information we collect now is subject to the Privacy Statement in effect at the time such information is used. If we make changes in the way we use personal information, we will notify you by posting an announcement on our Site or sending you an email. Users are bound by any changes to the Privacy Statement when he or she uses or otherwise accesses the Application after such changes have been first posted.
 QUESTIONS OR CONCERNS.
-If you have any questions or concerns regarding privacy on our Website, please send us a detailed message at silviu_st7@yahoo.com. We will make every effort to resolve your concerns.
+If you have any questions or concerns regarding privacy on our Website, please send us a detailed message at trippers.application@gmail.com. We will make every effort to resolve your concerns.
 Effective Date: January 1, 2011
 
